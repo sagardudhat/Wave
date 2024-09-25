@@ -1,10 +1,10 @@
-## Available Scripts
-
-In the project directory, you can run:
-
 ## Requirements
 
 Node v20.11.0
+
+## Available Scripts
+
+In the project directory, you can run:
 
 ## `npm install`
 
